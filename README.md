@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AEVB000601HTCLZRA9
+AEVB000601HTCLZRA9
